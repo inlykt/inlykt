@@ -1,1 +1,1 @@
-👋 Hi, I’m @inlykt
+👋 hi, im @inlykt
